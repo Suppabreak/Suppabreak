@@ -1,5 +1,5 @@
 ### ¿sup Yue? I be sudQ!
-- :us: freedom land
+- :us: freedom land (WOOO AMERICA FUCK YEAHH!!!) (i hate america)
 - :penguin: openFRUE founder & CEO
 - :raised_eyebrow: they/them pronouns, or /they/she
 - :cold_face: you can reach me with:
